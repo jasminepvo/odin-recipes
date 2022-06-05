@@ -11,4 +11,4 @@ Current Recipes:
 - Mango Sticky Rice
 - Fried Rice
 
-Follow @jetereats on Instagram for more!
+Follow [@jetereats](https://www.instagram.com/jetereats) on Instagram for more!
